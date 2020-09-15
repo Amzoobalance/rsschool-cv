@@ -1,6 +1,6 @@
 # Curriculum vitae
 
-## Andrey Orlov
+## Andrei Orlov
 
 ### Contacts
 
